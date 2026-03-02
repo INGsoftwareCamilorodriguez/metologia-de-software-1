@@ -1,1 +1,2 @@
 ## CAMILO_ES_GAY
+### camilo es gay pero lo malo es que no solo es gay si no que el piensa que poruqe el esa gay todos tenemos que serlo, en sima le dicen que es gay de broma y dice  y lo malo , uy no es demaciado gay
